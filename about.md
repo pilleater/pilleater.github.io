@@ -14,8 +14,7 @@ I am anti-capitalist, anti-liberal, anti-social, and against modernity.
 
 We must accelerate the revolution. 
 
--pilleater
-May, 2022.
+-pilleater, May, 2022.
 
 [Odysee Page.](https://odysee.com/@francisforever:b)
 
